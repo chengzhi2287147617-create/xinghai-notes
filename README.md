@@ -1,1 +1,0 @@
-# Xinghai Notes
